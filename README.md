@@ -1,1 +1,1 @@
-I'm Midred, And i don't like to code.
+I'm Midred, i want to be a sucessful pediatrician.i dont like coding
